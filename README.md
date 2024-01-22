@@ -1,4 +1,4 @@
-## Olá! Eu sou o Thiago de Abreu Lino :)
+## Olá! Eu sou o Thiago de Abreu Lino :smiley:
 
 <div>
   
